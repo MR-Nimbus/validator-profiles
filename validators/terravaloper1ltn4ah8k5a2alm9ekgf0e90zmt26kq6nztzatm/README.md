@@ -10,7 +10,7 @@ Nexus Event, the event which causes a new timeline to arise from the "sacred tim
 
 ## Team
 
-We might not have a deep bench, but we strive for exceptionalism. If you're interested in joining our team, please reach out to our contact information. We are in need of a communication specialist.
+We might not have a deep bench, but we strive for exceptionalism. If you're interested in joining our team, please reach out to our contact information. We are in need of a communication/branding specialist.
 
 | Name            | Role                | Description                  |
 | --------------- | ------------------- | ---------------------------- |
